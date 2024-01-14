@@ -1,2 +1,0 @@
-# justmonika.club
-Just Monika
